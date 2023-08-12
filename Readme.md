@@ -1,6 +1,5 @@
 # Escape Game tech-workout
-Développement d'un système digitale au service de la Culture Urbaine.  
-Et de la #1Science #2Naturelle-Physique
+Un parcours #1Science #2Naturelle-Physique
 
 [github.com/LordGrrr/Escape-Game-tech-workout/wiki](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)
   
