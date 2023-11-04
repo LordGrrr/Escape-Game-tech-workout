@@ -1,4 +1,7 @@
 # Escape Game tech-workout
+Sensation qui nourrie Représentation
+vs
+Représentation qui engendre Sensation
 ## A demurgic project
 [github.com/LordGrrr/Escape-Game-tech-workout/wiki](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)
   
