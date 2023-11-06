@@ -1,7 +1,20 @@
 # Escape Game tech-workout
+
+
+
+**On est meilleur que dans ce que l'on aime car _Psyché_ l'automatiser en soi-même.**  
+### War-Head
+```  
+Aimer x Aimer = Aimer²  
+Détruire x Détruire = Protéger
+
+⚠️ Aimer Protéger peut ammener à automatiser Détruire aimer ⚠️
+```
+##
 **Sensation** qui _nourrie_ **Représentation** vs **Représentation** qui _engendre_ **Sensation**
 
 **Sensation** which _nourishes_ **Representation** vs **Representation** which _generates_ **Sensation**
+
 ## A demurgic project
 [github.com/LordGrrr/Escape-Game-tech-workout/wiki](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)
   
