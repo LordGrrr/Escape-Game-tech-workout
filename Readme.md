@@ -19,10 +19,10 @@ Destroy x Destroy = to Protect
 
 ⚠️ Loving Protecting can lead to automation Destroying to Love ⚠️
 ```
-##
-**Sensation** qui _nourrie_ **Représentation** vs **Représentation** qui _engendre_ **Sensation**
+## (**Selection**) vs (**Association**)  
+**Sensation** qui _nourrie_ **Représentation** versus **Représentation** qui _engendre_ **Sensation**   
 
-**Sensation** which _nourishes_ **Representation** vs **Representation** which _generates_ **Sensation**
+**Sensation** which _nourishes_ **Representation** versus **Representation** which _generates_ **Sensation**
 
 ## A demurgic project
 [github.com/LordGrrr/Escape-Game-tech-workout/wiki](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)
