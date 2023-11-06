@@ -2,16 +2,18 @@
 
 
 
-**On est meilleur que dans ce que l'on aime car _Psyché_ l'automatise en soi-même.**  
-**We are better at what we love because _Psyche_ automates it in ourselves.** 
+**(fr) On est meilleur que dans ce que l'on aime car _Psyché_ l'automatise en soi-même.**  
+**(en) We are better at what we love because _Psyche_ automates it in ourselves.** 
 ### War-Head
-```  
+```
+(fr)
 Aimer x Aimer = Aimer²  
 Détruire x Détruire = Protéger
 
 ⚠️ Aimer Protéger peut ammener à automatiser Détruire aimer ⚠️
 ```
-```  
+```
+(en)
 to Love x to Love = (to Love)²  
 Destroy x Destroy = to Protect
 
