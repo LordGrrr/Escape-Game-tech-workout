@@ -4,7 +4,7 @@
 
 **(fr) On est meilleur que dans ce que l'on aime car _Psyché_ l'automatise en soi-même.**  
 **(en) We are better at what we love because _Psyche_ automates it in ourselves.** 
-### War-Head
+### Pax-Head
 ```
 (fr)
 Aimer x Aimer = Aimer²  
