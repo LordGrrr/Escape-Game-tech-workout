@@ -14,7 +14,7 @@ Détruire x Détruire = Protéger
 ```
 ```
 (en)
-to Love x to Love = (to Love)²  
+to Love x to Love = to Love²  
 Destroy x Destroy = to Protect
 
 ⚠️ Loving Protecting can lead to automation Destroying to Love ⚠️
