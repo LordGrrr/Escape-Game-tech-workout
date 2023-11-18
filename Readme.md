@@ -28,7 +28,7 @@ to Destroy x to Destroy = to Protect
 Conscience découvre avant d'orienter.  
 ```
 empreinte (sensation) ⇒ association (conscience) ⇒ intégration en Psyché (structure)
-1 intégration + 1 intégration ⇒ compréhension
+1 intégration + 1 intégration ⇒ 1 compréhension
 ```
 Psyché renvoie l'information sous forme d'émotion quand le contexte le nécéssite. Volonté permet de **réguler** l'information émotionnel. Mélangé à l'instant, une nouvelle empreinte est créée. Les combinaisons sont de l'ordre de l'infini et la sophistication rend l'ensemble de plus en plus léger. _Hard work head_...
 
