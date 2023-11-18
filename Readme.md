@@ -30,6 +30,8 @@ Conscience découvre avant d'orienter.
 empreinte (sensation) ⇒ association (conscience) ⇒ intégration en Psyché (structure)
 1 intégration + 1 intégration ⇒ 1 compréhension
 ```
+Lors d'une compréhension le **libre arbitre** permet de choisir entre observer où agir. Tout cela ce passe à la vitesse de l'instantané..
+  
 Psyché renvoie l'information sous forme d'émotion quand le contexte le nécéssite. Volonté permet de **réguler** l'information émotionnel. Mélangé à l'instant, une nouvelle empreinte est créée. Les combinaisons sont de l'ordre de l'infini et la sophistication rend l'ensemble de plus en plus léger. _Hard work head_...
 
 ## A demurgic project
