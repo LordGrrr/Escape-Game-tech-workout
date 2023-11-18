@@ -10,14 +10,14 @@
 Aimer x Aimer = Aimer²  
 Détruire x Détruire = Protéger
 
-⚠️ Aimer Protéger peut ammener à automatiser Détruire aimer ⚠️
+⚠️ Aimer Protéger peut conduire à une automatisation détruisant l'Amour ⚠️
 ```
 ```
 (en)
 to Love x to Love = to Love²  
 to Destroy x to Destroy = to Protect
 
-⚠️ Loving Protecting can lead to automation Destroying to Love ⚠️
+⚠️ Loving Protecting can lead to automation destroying to Love ⚠️
 ```
 ## (**Selection**) vs (**Association**)  
 **Sensation** qui _nourrie_ **Représentation** versus **Représentation** qui _engendre_ **Sensation**   
