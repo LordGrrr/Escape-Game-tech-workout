@@ -24,6 +24,13 @@ to Destroy x to Destroy = to Protect
 
 **Sensation** which _nourishes_ **Representation** versus **Representation** which _generates_ **Sensation**
 
+## Construire sur ses instincs
+Conscience découvre avant d'orienter.  
+```
+empreinte (sensation) ⇒ association (conscience) ⇒ intégration (structure)
+1 intégration + 1 intégration ⇒ compréhension
+```
+
 ## A demurgic project
 [github.com/LordGrrr/Escape-Game-tech-workout/wiki](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)  
 
