@@ -4,6 +4,9 @@
 
 **(fr) On est meilleur que dans ce que l'on aime car _Psyché_ l'automatise en soi-même.**  
 **(en) We are better at what we love because _Psyche_ automates it in ourselves.** 
+
+Un dévelopement autour de **l'algorithmie** qui, porté par l'imagination n'est pas de l'algorithmique. On peut en faire sans informatique. La résolution des problèmes n'étant pas forcément d'importance majeur, voir absurde par amusement.  
+Tout commence par se raconter une histoire en décrivant un contexte...  
 ### Pax-Head
 ```
 (fr)
