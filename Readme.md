@@ -2,12 +2,12 @@
 ### (fr)  _Psyché : Ensemble conceptuel de tout ce qui est de Nature psychique._
 
 **On est meilleur que dans ce que l'on aime car _Psyché_ l'automatise en soi-même.**   
-Un dévelopement autour de **l'algorithmie** qui, porté par l'imagination n'est pas de l'algorithmique. On peut en faire sans informatique. La résolution des problèmes n'étant pas forcément d'importance majeur, voir peut-être absurde par amusement.  
+Un dévelopement autour de **l'algorithmie** qui, porté par l'imagination n'est pas de l'algorithmique. On peut en faire sans informatique. La résolution des problèmes n'étant pas forcément d'importance majeur, elle peut-être absurde par amusement.  
 Tout commence par se raconter une histoire en décrivant un contexte...  
 
 ### (en) _Psyche: Conceptual set of everything that is of a psychic Nature._
 **We are better at what we love because _Psyche_ automates it in ourselves.**  
-A development around **algorithmy** which, driven by the imagination, is not algorithmic. We can do it without computers. The resolution of the problems is not necessarily of major importance, and can even be absurd for fun.  
+A development around **algorithmy** which, driven by the imagination, is not algorithmic. We can do it without computers. The resolution of the problems is not necessarily of major importance, it can be absurd for fun.  
 It all starts by telling a story by describing a context...
 
 ### Pax-Head
