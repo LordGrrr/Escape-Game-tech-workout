@@ -36,6 +36,8 @@ Conscience découvre avant d'orienter.
 ```
 empreinte (sensation) ⇒ association (conscience) ⇒ intégration en Psyché (structure)
 1 intégration + 1 intégration ⇒ 1 compréhension
+
+(Les émotions faisant office de structures porteuses et les sensations étants "le vent" qui passe à travers pour les faire vibrer)
 ```
 Lors d'une compréhension le **libre arbitre** permet de choisir entre **observer** où **agir**. Tout cela ce passe à la vitesse de l'instantané...
   
