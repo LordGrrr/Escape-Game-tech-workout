@@ -64,6 +64,9 @@ to destroy:
 * V ème République
 * ...
 
+Nous sommes tout les trois dans l'incapacité de se rejoindre ni même de communiquer par voie terrestre.  
+Ni entre elles, ni avec moi depuis presque plus de **7 ans!**
+
 ## Les anti-humains
  Issuent des non-humains, ce sont des humains ayant un beson Vital de l'humain mais, car il y a un mais, qui ne supportent pas les humains (eux-mêmes...).
 ## A demurgic project
