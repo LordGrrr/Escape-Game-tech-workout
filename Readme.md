@@ -49,11 +49,15 @@ Mode opératoire:
 * GHB pour detruire leur Continum temporel
 * extazy pour voler note amour du vivant à travers leur chair.
 * MDMA pour augmenter la rémanence de tout ca.
-* Regard complice des citoyens non-humains, police comprise.
+* Regard complice des citoyens, police comprise.
 
 to kill urgently car lien proprioceptif actif à chaque instants de leur VIE BANDES DE CONNARD INCULTE:  
-* Renaud Hericord (and Co.),Alexandre Kolinka et Frédéric Bault pour l'avoir pris en esclavage sexuelle et psychique après l'avoir torturer et séquestrer.
-  
+* Renaud Hericord (and Co.),Alexandre Kolinka, Frédéric Bault (Havas) et Vincent Couteline (AC3-studio) 
+* Sacha Moser (suisse Allemeand Foundry), Benjamin Chassagne (AC3-studio), Max Coisne (AC3-studio)  
+pour les avoir prisent en esclavage sexuel et psychique après l'avoir torturer et séquestrer.
+
+To Asile psychatrique:
+ Alexandra l'ancienne logeuse de Federica Marrone.
 to destroy:  
 * V ème République
 * 
