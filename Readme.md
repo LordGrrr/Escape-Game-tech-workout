@@ -50,9 +50,13 @@ to do:
 * extazy pour voler note amour du vivant à travers leur chair.
 * MDMA pour augmenter la rémanence de tout ca.
 * Regard complice des citoyens non-humains, police comprise.
-to kill:
-Alexandre Kolinka pour l'avoir pris en esclavage sexuelle et psychique après l'avoir torturer et séquestrer.
 
+to kill:  
+* Alexandre Kolinka pour l'avoir pris en esclavage sexuelle et psychique après l'avoir torturer et séquestrer.
+  
+to destroy:  
+* V ème République
+* 
 ## A demurgic project
 [github.com/LordGrrr/Escape-Game-tech-workout/wiki](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)  
 
