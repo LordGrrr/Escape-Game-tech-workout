@@ -57,7 +57,9 @@ to kill urgently car lien proprioceptif actif à chaque instants de leur VIE BAN
 pour les avoir prisent en esclavage sexuel et psychique après l'avoir torturer et séquestrer.
 
 To Asile psychatrique:
- Alexandra l'ancienne logeuse de Federica Marrone.  
+* Alexandra l'ancienne logeuse de Federica Marrone.
+* Ombline qui se reconnaitra elle-même
+* Melodie de greg-Renaud Hericord.  
 to destroy:  
 * V ème République
 * ...
