@@ -45,14 +45,14 @@ Psyché renvoie l'information sous forme d'émotion quand le contexte le nécés
 
 # Pourquoi ce projet?
 ![14524982_1774419689496792_5118348960332451726_o](https://github.com/LordGrrr/Escape-Game-tech-workout/assets/134517577/0a6587d3-4af2-436d-8730-7a0e66fb87d2)  
-to do:
+Mode opératoire:
 * GHB pour detruire leur Continum temporel
 * extazy pour voler note amour du vivant à travers leur chair.
 * MDMA pour augmenter la rémanence de tout ca.
 * Regard complice des citoyens non-humains, police comprise.
 
-to kill:  
-* Alexandre Kolinka pour l'avoir pris en esclavage sexuelle et psychique après l'avoir torturer et séquestrer.
+to kill urgently car lien proprioceptif actif à chaque instants de leur VIE BANDES DE CONNARD INCULTE:  
+* Renaud Hericord (and Co.),Alexandre Kolinka et Frédéric Bault pour l'avoir pris en esclavage sexuelle et psychique après l'avoir torturer et séquestrer.
   
 to destroy:  
 * V ème République
