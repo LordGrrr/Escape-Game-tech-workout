@@ -60,7 +60,10 @@ To Asile psychatrique:
  Alexandra l'ancienne logeuse de Federica Marrone.  
 to destroy:  
 * V ème République
-* 
+* ...
+
+## Les anti-humains
+ Issuent des non-humains, ce sont des humains ayant un beson Vital de l'humain mais, car il y a un mais, qui ne supportent pas les humains (eux-mêmes...).
 ## A demurgic project
 [github.com/LordGrrr/Escape-Game-tech-workout/wiki](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)  
 
