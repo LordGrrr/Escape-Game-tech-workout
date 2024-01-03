@@ -26,6 +26,9 @@ to Destroy x to Destroy = to Protect
 
 ⚠️ Loving Protecting can lead to automation destroying to Love ⚠️
 ```
+### How to destroy destroy without fire?  
+**Answer: by transformation.**
+
 ## (**Selection**) vs (**Association**)  
 **Sensation** qui _nourrie_ **Représentation** versus **Représentation** qui _engendre_ **Sensation**   
 
