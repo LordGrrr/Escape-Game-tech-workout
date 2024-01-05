@@ -54,12 +54,12 @@ Mode opératoire:
 * MDMA pour augmenter la rémanence de tout ca.
 * Regard complice des citoyens, police comprise.
 
-to kill urgently car lien proprioceptif actif à chaque instants de leur VIE BANDES DE CONNARD INCULTE:  
+to kill urgently car lien proprioceptif actif à chaque instants de leur VIE BANDES DE CONNARD INCULTE:  (non-exhaustif)
 * Renaud, Olivier et **Laurent** Hericord (and Co.), Alexandre Kolinka, Frédéric Bault (Havas) et Vincent Couteline (AC3-studio) 
 * Sacha Moser (suisse Allemeand Foundry), Benjamin Chassagne (AC3-studio), Max Coisne (AC3-studio)  
 pour les avoir prisent en esclavage sexuel et psychique après l'avoir torturer et séquestrer.
 
-To Asile psychatrique:
+To Asile psychatrique: (non-exhaustif)
 * Alexandra l'ancienne logeuse de Federica Marrone.
 * Ombline qui se reconnaitra elle-même
 * Melodie de greg-Renaud Hericord.
@@ -69,7 +69,10 @@ to destroy:
 * ...
 
 Nous sommes tout les trois dans l'incapacité de se rejoindre ni même de communiquer par voie terrestre.  
-Ni entre elles, ni avec moi depuis presque plus de **7 ans!**
+Ni entre elles, ni avec moi depuis presque plus de **7 ans!** (2023)
+
+## La paranoïa
+Deux problèmes qui n'ont rien à voire qui se mélangent.
 
 ## Les anti-humains
  Issuent des non-humains, ce sont des humains ayant un beson Vital de l'humain mais, car il y a un mais, qui ne supportent pas les humains (eux-mêmes...).
