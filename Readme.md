@@ -56,7 +56,7 @@ Mode opératoire:
 
 to kill urgently car lien proprioceptif actif à chaque instants de leur VIE BANDES DE CONNARD INCULTE:  (non-exhaustif)
 * Renaud, Olivier et **Laurent** Hericord (and Co.), Alexandre Kolinka, Frédéric Bault (Havas) et Vincent Couteline (AC3-studio) 
-* Sacha Moser (suisse Allemeand Foundry), Benjamin Chassagne (AC3-studio), Max Coisne (AC3-studio)  
+* Sacha Moser (suisse Allemeand Foundry), ~~Benjamin Chassagne~~ (AC3-studio), Max Coisne (AC3-studio)  
 pour les avoir prisent en esclavage sexuel et psychique après l'avoir torturer et séquestrer.
 
 To Asile psychatrique: (non-exhaustif)
