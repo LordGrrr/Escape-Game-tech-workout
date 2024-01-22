@@ -48,28 +48,7 @@ Psyché renvoie l'information sous forme d'émotion quand le contexte le nécés
 
 # Pourquoi ce projet?
 ![14524982_1774419689496792_5118348960332451726_o](https://github.com/LordGrrr/Escape-Game-tech-workout/assets/134517577/0a6587d3-4af2-436d-8730-7a0e66fb87d2)  
-Mode opératoire:
-* GHB pour detruire leur Continum temporel
-* extazy à trés haute dose et constament (depuis presque 10 ans et **3 enfants**) pour voler note amour du vivant à travers leur chair.
-* MDMA pour augmenter la rémanence de tout ca.
-* Regard complice des citoyens, police comprise.
 
-to kill urgently car lien proprioceptif actif à chaque instants de leur VIE BANDES DE CONNARD INCULTE:  (non-exhaustif)
-* Renaud, Olivier et **Laurent** Hericord (and Co.), Alexandre Kolinka, Frédéric Bault (Havas) et Vincent Couteline (AC3-studio) 
-* Sacha Moser (suisse Allemeand Foundry), ~~Benjamin Chassagne~~ (AC3-studio), Max Coisne (AC3-studio)  
-pour les avoir prisent en esclavage sexuel et psychique après l'avoir torturer et séquestrer.
-
-To Asile psychatrique: (non-exhaustif)
-* Alexandra l'ancienne logeuse de Federica Marrone.
-* Ombline qui se reconnaitra elle-même
-* Melodie de greg-Renaud Hericord.
-  
-to destroy:  
-* V ème République
-* ...
-
-Nous sommes tout les trois dans l'incapacité de se rejoindre ni même de communiquer par voie terrestre.  
-Ni entre elles, ni avec moi depuis presque plus de **7 ans!** (2023)
 
 ## La paranoïa
 Deux problèmes qui n'ont rien à voire qui se mélangent.
