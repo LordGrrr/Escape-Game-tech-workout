@@ -1,4 +1,4 @@
-Les enfants voient les choses telles quelles sont. Pas d'où elles viennent et comme tous le mondes, ils doivent apprendre où elles vont.
+Les enfants voient les choses telles quelles sont. Pas d'où elles viennent et comme tous le monde, ils doivent apprendre où elles vont.
 # Escape Game tech-workout
 ### (fr)  _Psyché : Ensemble conceptuel de tout ce qui est de Nature psychique._
 
