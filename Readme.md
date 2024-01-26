@@ -49,7 +49,7 @@ Psyché renvoie l'information sous forme d'émotion quand le contexte le nécés
 # Pourquoi ce projet?
 ![oihgf](https://github.com/LordGrrr/Escape-Game-tech-workout/assets/134517577/6cdd0f2f-fdfc-4aea-ae0a-5b5bbfc99e9f)  
 
-**R.I.P. U R dead 2 me bithches.**
+**In the loving memory**
 
 
 ## La paranoïa
