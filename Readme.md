@@ -47,7 +47,7 @@ Lors d'une compréhension le **libre arbitre** permet de choisir entre **observe
 Psyché renvoie l'information sous forme d'émotion quand le contexte le nécéssite. Volonté permet de **réguler** l'information émotionnelle. Mélangé à l'instant, une nouvelle empreinte est créée. Les combinaisons sont de l'ordre de l'infini et la sophistication rend l'ensemble de plus en plus léger. _Hard work ahead_...
 
 # Pourquoi ce projet?
- ![298612332-6cdd0f2f-fdfc-4aea-ae0a-5b5bbfc99e9f](https://github.com/LordGrrr/Escape-Game-tech-workout/assets/134517577/d5f23df7-3cdb-478e-811a-cb37e056db14)  
+ ![14524982_1774419689496792_5118348960332451726_o](https://github.com/LordGrrr/Escape-Game-tech-workout/assets/134517577/d3b16896-e193-49a7-bf12-c2bc42ba28b9)
 
 **Love will never die**
 
