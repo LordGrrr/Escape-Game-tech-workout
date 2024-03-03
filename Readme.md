@@ -49,7 +49,7 @@ Psyché renvoie l'information sous forme d'émotion quand le contexte le nécés
 # Pourquoi ce projet?
  ![14524982_1774419689496792_5118348960332451726_o](https://github.com/LordGrrr/Escape-Game-tech-workout/assets/134517577/d3b16896-e193-49a7-bf12-c2bc42ba28b9)
 
-**Love will never die**
+[**Love will never die**](https://www.facebook.com/profile/100063716613296/search/?q=edf)
 
 
 ## La paranoïa
