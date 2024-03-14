@@ -47,8 +47,9 @@ Lors d'une compréhension le **libre arbitre** permet de choisir entre **observe
 Psyché renvoie l'information sous forme d'émotion quand le contexte le nécéssite. Volonté permet de **réguler** l'information émotionnelle. Mélangé à l'instant, une nouvelle empreinte est créée. Les combinaisons sont de l'ordre de l'infini et la sophistication rend l'ensemble de plus en plus léger. _Hard work ahead_...
 
 
-## La paranoïa
-Deux problèmes qui n'ont rien à voire qui se mélangent et zero options devant.
+## Paranoia
+* Deux problèmes qui n'ont rien à voir qui se mélangent et zero options devant.
+* Two unrelated problems mixed together with zero options ahead.
 
 ## Les anti-humains
  Issuent des non-humains, ce sont des humains ayant un beson Vital de l'humain mais, car il y a un mais, qui ne supportent pas les humains (eux-mêmes)...
