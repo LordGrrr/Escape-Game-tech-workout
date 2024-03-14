@@ -48,7 +48,7 @@ Psyché renvoie l'information sous forme d'émotion quand le contexte le nécés
 
 
 ## La paranoïa
-Deux problèmes qui n'ont rien à voire qui se mélangent.
+Deux problèmes qui n'ont rien à voire qui se mélangent et zero options devant.
 
 ## Les anti-humains
  Issuent des non-humains, ce sont des humains ayant un beson Vital de l'humain mais, car il y a un mais, qui ne supportent pas les humains (eux-mêmes)...
