@@ -11,6 +11,9 @@ Tout commence par se raconter une histoire en décrivant un contexte...
 A development around **algorithmy** which, driven by the imagination, is not algorithmic. We can do it without computers. The resolution of the problems is not necessarily of major importance, it can be absurd for fun.  
 It all starts by telling a story by describing a context...
 
+## L'algorithmie
+Techniques et méthodes pour décrire la transformation d'engrames à séquence et vice-versa.
+
 ### Pax-Head
 ```
 (fr)
