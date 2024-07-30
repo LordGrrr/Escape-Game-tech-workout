@@ -14,10 +14,10 @@ It all starts by telling a story by describing a context...
 ## L'algorithmie
 Techniques et méthodes pour décrire une transformation d'engrames à séquence et vice-versa.
 ```
-Engrame => engrame
-Engrame => sequence
+Engramme => engramme
+Engramme => sequence
 Sequence => sequence
-Sequence => Engrame
+Sequence => Engramme
 ```
 
 ### Pax-Head
