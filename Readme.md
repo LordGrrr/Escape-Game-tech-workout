@@ -30,7 +30,10 @@ Sequence => Engramme (diffusion)
 Aimer x Aimer = Aimer²  
 Détruire x Détruire = Protéger
 
-⚠️ Aimer Protéger peut conduire à une automatisation détruisant l'Amour ⚠️
+⚠️ Aimer Protéger peut conduire à une automatisation détruisant l'Amour.
+Dértuire x détruire se doit d'être hors des vecteurs anticipateurs.
+Anticiper Détruire amène à border.
+⚠️
 ```
 ```
 (en)
