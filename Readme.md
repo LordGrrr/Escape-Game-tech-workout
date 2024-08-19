@@ -32,7 +32,7 @@ Détruire x Détruire = Protéger
 
 ⚠️ Aimer Protéger peut conduire à une automatisation détruisant l'Amour.
 Dértuire x détruire se doit d'être hors des vecteurs anticipateurs.
-Anticiper Détruire amène à border.
+Anticiper Détruire amène à encadrer.
 ⚠️
 ```
 ```
@@ -40,7 +40,10 @@ Anticiper Détruire amène à border.
 to Love x to Love = to Love²  
 to Destroy x to Destroy = to Protect
 
-⚠️ Loving Protecting can lead to automation destroying to Love ⚠️
+⚠️ Loving Protecting can lead to automation destroying to Love
+Destroy x destroy must be outside the anticipatory vectors.
+Anticipate Destroy leads to framing.
+⚠️
 ```
 ### How to destroy destroy without fire?  
 **Answer: by transformation.**
