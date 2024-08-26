@@ -70,6 +70,9 @@ Psyché renvoie l'information sous forme d'émotion quand le contexte le nécés
 * Deux problèmes qui n'ont rien à voir qui se mélangent et zero options devant.
 * Two unrelated problems mixed together with zero options ahead.
 
+## Human life
+![CacaPipi drawio](https://github.com/user-attachments/assets/391fab25-1013-4335-8e4a-72e834580699)
+
 ## A demiurgic project
 [github.com/LordGrrr/Escape-Game-tech-workout/wiki](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)  
 
