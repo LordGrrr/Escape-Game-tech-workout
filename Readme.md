@@ -32,7 +32,7 @@ Détruire x Détruire = Protéger
 
 ⚠️ Aimer Protéger peut conduire à une automatisation détruisant l'Amour.
 Dértuire x détruire se doit d'être hors des vecteurs anticipateurs.
-Anticiper Détruire amène à encadrer.
+Anticiper Détruire amène à encadrer pour ne pas detruire.
 ⚠️
 ```
 ```
@@ -42,11 +42,22 @@ to Destroy x to Destroy = to Protect
 
 ⚠️ Loving Protecting can lead to automation destroying to Love
 Destroy x destroy must be outside the anticipatory vectors.
-Anticipate Destroy leads to framing.
+Anticipate Destroy leads to framing so as not to drestroy.
 ⚠️
 ```
 ### How to destroy destroy without fire?  
 **Answer: by transformation.**
+
+## Intellecuel / intellectual
+(fr)  
+D'abord on vit, ensuite on pense à ce qu'on a vécu.  
+Après un certain temps, les deux se mélangent (vivre et penser).  
+C'est ce que signifie être intellectuel.  
+  
+(en)  
+First you live then you think about what you have lived.  
+After a while, the two get mixed up (living & thinking).  
+That's what it means to be intellectual.  
 
 ## (**Selection**) vs (**Association**)  
 **Sensation** qui _nourrie_ **Représentation** versus **Représentation** qui _engendre_ **Sensation**   
