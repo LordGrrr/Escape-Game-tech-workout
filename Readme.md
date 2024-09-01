@@ -1,6 +1,5 @@
 
 ##
-![carte de visite](https://github.com/user-attachments/assets/050c2b2b-19a0-4de3-9aa1-b44d3aab9023)
 
 
 ##
