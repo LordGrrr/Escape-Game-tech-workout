@@ -1,8 +1,6 @@
 
 ##
-![Sans titre2](https://github.com/user-attachments/assets/fc82b6f3-9c3a-4408-923c-f60489c7e606)  
-![1517404149466](https://github.com/user-attachments/assets/7d468b55-a079-4dfb-a7a9-25bc6f0fffa3)
-![carte de visite](https://github.com/user-attachments/assets/be2bd50a-3735-4d99-8d26-07f78677a7dd)
+![carte de visite](https://github.com/user-attachments/assets/050c2b2b-19a0-4de3-9aa1-b44d3aab9023)
 
 
 ##
