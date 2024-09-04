@@ -1,4 +1,25 @@
+## XXIII. L'IDÉE DE TEMPS.
+**Ainsi qu'il paraît, tous les corps ont des accidents qui n'ont point de suite
+nécessaire ni d'ordre naturel**, et qui doivent être considérés tels que les sens
+se les représentent. Il faut avoir attention à ce principe, parce que nous ne
+devons pas rechercher la nature du temps de la manière dont nous
+recherchons les autres choses qui sont dans quelque sujet, en les rapportant
+aux notions antécédentes que nous en avons en nous-mêmes. On en doit
+parler selon l'effet même qui nous le fait appeler court et long, sans chercher
+là-dessus d'autres manières de nous exprimer, comme si elles étaient
+meilleures. Il faut se servir de celles qui sont en usage, et ne point dira
+d'autres choses sur ce sujet, comme si elles étaient signifiées par le langage
+ordinaire, ainsi que, font quelques-uns. Il n'y a seulement qu'à prendre garde
+que dans ces expressions nous joignions ensemble l'idée propre du temps, et
+que nous le mesurions. En effet, ce n'est pas ici un sujet où il s'agisse de
+démonstration ; il ne demande que de l'attention. Par les jours, les nuits et
+leurs parties, nous joignons le temps ensemble. Et comme les passions, la
+tranquillité, le mouvement et le repos que nous éprouvons nous font joindre
+quelque chose d'accidentel avec ces sentiments, de même aussi, lorsque
+nous pensons de nouveau à ces parties de la durée, nous leur donnons le
+nom de temps.
 
+_LETTRE D'ÉPICURE A HÉRODOTE_
 ## Team
 ![love](https://github.com/user-attachments/assets/ae764295-c53a-4721-99cc-de501acc1b2a)
 
