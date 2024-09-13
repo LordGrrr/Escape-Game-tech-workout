@@ -20,7 +20,8 @@ nous pensons de nouveau à ces parties de la durée, nous leur donnons le
 nom de temps.
 
 _LETTRE D'ÉPICURE A HÉRODOTE_
-## Team
+## Brain Dead Team
+
 ![love](https://github.com/user-attachments/assets/ae764295-c53a-4721-99cc-de501acc1b2a)
 
 
