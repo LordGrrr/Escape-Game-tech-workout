@@ -24,10 +24,12 @@ _LETTRE D'ÉPICURE A HÉRODOTE_
 
 ![love](https://github.com/user-attachments/assets/ae764295-c53a-4721-99cc-de501acc1b2a)
 
+## Le sujet Principal
+**Conscience et son développement.**  
+_L'ignorance n'est pas une excuse._  
 
-
-##
 Les enfants voient les choses telles quelles sont. Pas d'où elles viennent et comme tous le monde, ils doivent apprendre où elles vont.
+
 # Escape Game tech-workout
 ### (fr)  _Psyché : Ensemble conceptuel de tout ce qui est de Nature psychique._
 
