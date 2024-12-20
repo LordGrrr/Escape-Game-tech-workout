@@ -21,7 +21,10 @@ nous pensons de nouveau à ces parties de la durée, nous leur donnons le
 nom de temps.
 
 _LETTRE D'ÉPICURE A HÉRODOTE_
-## Team
+
+# TEAM Nexus 101
+**1**:Paula+**0**:Loran+**1**:Fédé   
+![262319794-f9bb4666-e515-406c-9a8a-5c4dfb14c367](https://github.com/user-attachments/assets/5307459e-9d3e-4826-9ee6-c56d129ed687)
 
 ![love](https://github.com/user-attachments/assets/ae764295-c53a-4721-99cc-de501acc1b2a)
 
