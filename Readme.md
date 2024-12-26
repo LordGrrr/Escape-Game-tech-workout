@@ -23,7 +23,9 @@ nom de temps.
 _LETTRE D'ÉPICURE A HÉRODOTE_
 
 # TEAM 
+SECU
 ![262319794-f9bb4666-e515-406c-9a8a-5c4dfb14c367](https://github.com/user-attachments/assets/5307459e-9d3e-4826-9ee6-c56d129ed687)  
+MUMMY 
 ![federation_of_my_heart](https://github.com/user-attachments/assets/597c290b-10a1-4ddf-8c8a-7283b0f25e62)
 
 
