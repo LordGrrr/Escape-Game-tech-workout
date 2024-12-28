@@ -1,4 +1,4 @@
-https://github.com/LordGrrr/Escape-Game-tech-workout/wiki  
+[Wiki link](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)  
 ℹ️ To translate, use audio transposition.
 
 ## XXIII. L'IDÉE DE TEMPS.
