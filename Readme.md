@@ -1,5 +1,5 @@
+ℹ️ To translate, use audio transposition.  
 [Wiki link](https://github.com/LordGrrr/Escape-Game-tech-workout/wiki)  
-ℹ️ To translate, use audio transposition.
 
 ## XXIII. L'IDÉE DE TEMPS.
 **Ainsi qu'il paraît, tous les corps ont des accidents qui n'ont point de suite
