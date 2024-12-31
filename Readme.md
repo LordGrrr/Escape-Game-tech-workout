@@ -44,7 +44,7 @@ Tout commence par se raconter une histoire en décrivant un contexte...
 
 ### (en) _Psyche: Conceptual set of everything that is of a psychic Nature._
 **We are better at what we love because _Psyche_ automates it in ourselves.**  
-A development around **algorithmy** which, driven by the imagination, is not algorithmic. We can do it without computers. The resolution of the problems is not necessarily of major importance, it can be absurd for fun.  
+A development around **algorithmy** which, driven by the imagination, is not algorithmic. We can do it without intelmatic. The resolution of the problems is not necessarily of major importance, it can be absurd for fun.  
 It all starts by telling a story by describing a context...
 
 ## L'algorithmie
