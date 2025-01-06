@@ -28,10 +28,6 @@ _LETTRE D'ÉPICURE A HÉRODOTE_
 **SECU**  
 ![262319794-f9bb4666-e515-406c-9a8a-5c4dfb14c367](https://github.com/user-attachments/assets/5307459e-9d3e-4826-9ee6-c56d129ed687)  
   
-**Boss**  
-![Sans tdsfssitre](https://github.com/user-attachments/assets/92434306-e553-4bcd-a124-52b708b7118b)
-
-
 
 ## Le sujet Principal
 **Conscience et son développement.**  
